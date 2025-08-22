@@ -36,6 +36,6 @@ I'm open to collaborations and opportunities in:
 
 **Email:** anushkabhattarai@gmail.com  
 **LinkedIn:** https://www.linkedin.com/in/anushka-bhattarai-789aa5238/
+**Portfolio Website:** https://anneushka.my.canva.site/data-analyst-portfolio
 
-**Portfolio Website** https://anneushka.my.canva.site/data-analyst-portfolio
 
